@@ -20,7 +20,7 @@
 
 ![](https://i.imgur.com/uOt3opY.gif)
 
-https://i.imgur.com/ZkV9rxd.gif （加载不了大的gif，只能压缩了）
+（加载不了大的gif，只能压缩了）
 
 
 ![](https://i.imgur.com/ZSwtgUx.gif)
